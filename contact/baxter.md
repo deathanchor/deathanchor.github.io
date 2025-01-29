@@ -10,4 +10,4 @@ Please contact his parents immediately using any of the below methods:
 Baxter lives in [Freehold, NJ](https://www.google.com/maps/@40.2619899,-74.2394124,17.45z).
 
 ## Owner - Niko
-![Image](https://avatars.githubusercontent.com/u/1749195?v=4)
+![Image](https://avatars.githubusercontent.com/u/75376693?v=4)
