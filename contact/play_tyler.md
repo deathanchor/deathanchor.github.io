@@ -9,7 +9,7 @@ Tyler likes:
 - [Riding his bike](https://www.google.com/maps/@40.2619899,-74.2394124,17.45z)
 - [Ice Skating](https://www.jerseyshorearena.com/howell-public-skate)
 
-To play together with Tyler contact:
+Tyler's parents:
 
 - Jene (Mom) Text only: [+1-732-456-7783](tel:+1-732-456-7783)
 
