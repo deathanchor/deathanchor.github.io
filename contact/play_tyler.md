@@ -7,6 +7,7 @@ Tyler likes:
 - [Opatut Playground](https://goo.gl/maps/6r4JDWJMhfwscwqL9)
 - [Ballocity at iPlay](https://goo.gl/maps/FTZ5oJkMhwkubY228)
 - [Riding his bike](https://www.google.com/maps/@40.2619899,-74.2394124,17.45z)
+- [Ice Skating](https://www.jerseyshorearena.com/howell-public-skate)
 
 To play together with Tyler contact:
 
